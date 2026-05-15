@@ -1,4 +1,4 @@
-# 
+# AI-powered new token sniper bot | degen-coin-scanning + proxy-transactions is the best new token sniper bot, featuring degen-coin-scanning and proxy-transactions. Fast, smart, and
 
 
 
